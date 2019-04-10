@@ -1,2 +1,2 @@
-# Xer0-Puls3.Github.io
-Puls3's Website!
+# dfreyo.Github.io
+Minty's Website!
